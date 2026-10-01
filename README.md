@@ -1,1 +1,1 @@
-# Cybersecutiy-Journey
+# Cybersecurity-Journey
